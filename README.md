@@ -1,4 +1,4 @@
-# Sentient Beings: New-World Building
+# Sentient Beings: Beyond the Plate
 
 ## 🐖 Ethnographic Study: Full Circle Farm Sanctuary (Georgia)
 <table>
